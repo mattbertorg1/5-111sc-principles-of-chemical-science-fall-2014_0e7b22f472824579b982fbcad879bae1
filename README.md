@@ -1,0 +1,1 @@
+# 5-111sc-principles-of-chemical-science-fall-2014_0e7b22f472824579b982fbcad879bae1
